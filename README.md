@@ -42,4 +42,4 @@ AWS Certified Cloud Practitioner · Microsoft Azure Essentials · Azure AI Essen
 
 ---
 
-📍 Pullman & Maple Valley, Washington &nbsp;·&nbsp; ✉️ mrpenney1030@gmail.com
+🌐 **[kaidenpenney.github.io](https://kaidenpenney.github.io)** &nbsp;·&nbsp; 📍 Pullman & Maple Valley, Washington &nbsp;·&nbsp; ✉️ mrpenney1030@gmail.com
